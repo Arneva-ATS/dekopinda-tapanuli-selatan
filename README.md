@@ -1,1 +1,1 @@
-# dekopinda-tapanuli-selatan
+# dekopinda-karanganyar
